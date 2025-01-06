@@ -88,11 +88,11 @@
 👉[魔戒官方网址入口](https://mojie.co/register?aff=kaPXUS5U)
 
 
-## 十、[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=tKEvsIWT)
+## 十、[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=NYSpk7Lo)
 
 &emsp;&emsp; SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。港、台、日、新、美、 越南、泰国、马来西亚、 澳大利亚、英国、芬兰、加拿大、乌克兰、土耳其、罗马尼亚、 巴基斯坦等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。**月最低15/月，100G大流量**
 
-👉[HaloCloud官方网址入口](https://cloud.halo.do/#/auth/signup;referral=tKEvsIWT)
+👉[HaloCloud官方网址入口](https://cloud.halo.do/#/auth/signup;referral=NYSpk7Lo)
 
 
 ## 十一、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
