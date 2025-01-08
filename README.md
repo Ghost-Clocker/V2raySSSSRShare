@@ -88,11 +88,11 @@
 👉[魔戒官方网址入口](https://mojie.co/register?aff=kaPXUS5U)
 
 
-## 十、[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=jkR0zCDF)
+## 十、[MESL](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
-&emsp;&emsp; SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。港、台、日、新、美、 越南、泰国、马来西亚、 澳大利亚、英国、芬兰、加拿大、乌克兰、土耳其、罗马尼亚、 巴基斯坦等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。**月最低15/月，100G大流量**
+&emsp;&emsp; 多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港，澳门，日本，台湾， 新加坡，美国, 蒙古，韩国，朝鲜，印度，印度尼西亚，越南，菲律宾，柬埔寨，马来西亚，泰国，哥伦比亚，缅甸，孟加拉国，尼泊尔，澳大利亚，新西兰，加拿大，墨西哥，巴西，智利，阿根廷，秘鲁，玻利维亚，德国，英国，法国，荷兰，新西兰，爱尔兰，意大利，卢森堡，瑞士，丹麦，芬兰，瑞典，挪威，奥地利，捷克，冰岛，土耳其，比利时，葡萄牙，波兰，爱沙尼亚，匈牙利，俄罗斯，乌克兰，摩尔多瓦，罗马尼亚，保加利亚，塞尔维亚，希腊，以色列，伊朗，多哥，埃及，约旦，迪拜，沙特阿拉伯，阿曼，乌兹别克斯坦，巴基斯坦，哈萨克斯坦，尼日利亚，安哥拉，南非，南极等数十个国家和地区。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。独家保障**新疆地区**，现在注册即可免费白嫖。
 
-👉[HaloCloud官方网址入口](https://cloud.halo.do/#/auth/signup;referral=jkR0zCDF)
+👉[MESL官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
 
 ## 十一、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
