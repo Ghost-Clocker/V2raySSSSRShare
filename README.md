@@ -60,11 +60,11 @@
 👉[Gatern官方网址入口](https://shuttle.gt-all.com/aff.php?aff=2437)
 
 
-## 六、[EFCloud](https://www.efcloud3.cc/register?aff=kte30YEi)
+## 六、[光环网络](https://cloud.halo.do/auth/signup?referrer=tKEvsIWT)
 
-&emsp;&emsp;三网优质线路高速稳定大机场，Azure Oracle 深度合作伙伴,稳定流媒体全解锁，节点包括，港，台，日，新加坡，美，俄罗斯，印度，韩，德，法，阿联酋，意大利，加拿大，沙特，澳大利亚，荷兰，以色列，西班牙，瑞士，英，瑞典，智利，巴西，土耳其，阿根廷，南非，**月最低100G/8元，也有25元100G不限时流量包套餐，用完即止；新用户8 折优惠券代码: new**。
+&emsp;&emsp;全中转大机场，拥有 100+ 节点 4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，澳门，台湾，美国，日本，新加坡，韩国，印度、菲律宾，泰国，越南，马来西亚，印度尼西亚，德国，俄罗斯，英国，荷兰，加拿大，澳大利亚，乌克兰，法国，土耳其，巴基斯坦，沙特阿拉伯，埃及，墨西哥，尼日利亚，巴西，阿根廷，澳大利亚，新西兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**注册即可试用3天5G流量试用**
 
-👉[EFCloud官方网址入口](https://www.efcloud3.cc/register?aff=kte30YEi)
+👉[光环网络官方网址入口](https://cloud.halo.do/auth/signup?referrer=tKEvsIWT)
 
 
 ## 七、[M78星云](https://m78.at/#/register?code=FBpboMz4)
