@@ -48,6 +48,7 @@
 
 ## 四、[抖云加速](https://douyun.biz/#/register?code=1H1sqlEt)
 &emsp;&emsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速，全球25+热门国家，50+ 节点。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。**月最低15.88，128G大流量**
+
 👉[抖云官方网址入口](https://douyun.biz/#/register?code=1H1sqlEt)
 
 
@@ -58,11 +59,10 @@
 👉[Gatern官方网址入口](https://shuttle.gt-all.com/aff.php?aff=2437)
 
 
-## 六、[光环网络](https://cloud.halo.do/auth/signup?referrer=tKEvsIWT)
+## 六、[TapFog](https://tapfog.com/#/register?code=TCEXhxI9)
+&emsp;&emsp;***注册完成即可免费体验***，HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。支持trojan协议，客服响应速度快，体验极佳**首次注册5小时全套餐体验，月最低 60G/12.8元，17.8即可享受200G大流量，流媒体支持**
 
-&emsp;&emsp;全中转大机场，拥有 100+ 节点 4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，澳门，台湾，美国，日本，新加坡，韩国，印度、菲律宾，泰国，越南，马来西亚，印度尼西亚，德国，俄罗斯，英国，荷兰，加拿大，澳大利亚，乌克兰，法国，土耳其，巴基斯坦，沙特阿拉伯，埃及，墨西哥，尼日利亚，巴西，阿根廷，澳大利亚，新西兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**套餐月最低15，注册即可试用3天5G流量试用**
-
-👉[光环网络官方网址入口](https://cloud.halo.do/auth/signup?referrer=tKEvsIWT)
+👉[TapFog官方网址入口](https://tapfog.com/#/register?code=TCEXhxI9)
 
 
 ## 七、[M78星云](https://m78.at/#/register?code=FBpboMz4)
