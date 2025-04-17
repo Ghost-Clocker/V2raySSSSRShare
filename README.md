@@ -79,11 +79,11 @@
 👉[智连云官方网址入口](https://xinzhilian.xyz/register?code=7wOIOjnh)
 
 
-## 九、[魔戒](https://mojie.co/register?aff=kaPXUS5U)
+## 九、[TSMeow](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
 
-&emsp;&emsp;不限速，没有到期时间，不限制人数，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低可至 1 元2G**。
+&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，月付23即可888G大流量**
 
-👉[魔戒官方网址入口](https://mojie.co/register?aff=kaPXUS5U)
+👉[TSMeow官方网址入口](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
 
 
 ## 十、[MESL](https://in.mesl.cloud/#/register?code=hRteYPbP)
