@@ -25,6 +25,9 @@ Shadowrocket是一个性能优异的iOS全局代理软件
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/1.png)
 
 
+**❗❗❗注意！注意！请按教程操作不要登录icloud，仅切换商店ID即可（否则容易锁ID或锁设备）**
+
+
 进商店搜索：Shadowrocket 图标是一个小火箭的LOGO，别下错了
 
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/2.jpg)
