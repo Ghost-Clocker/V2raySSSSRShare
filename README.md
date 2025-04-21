@@ -59,10 +59,9 @@
 👉[Gatern官方网址入口](https://shuttle.gt-all.com/aff.php?aff=2437)
 
 
-## 六、[TapFog](https://tapfog.com/#/register?code=TCEXhxI9)
-&emsp;&emsp;***注册完成即可免费体验***，HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。支持trojan协议，客服响应速度快，体验极佳**首次注册5小时全套餐体验，月最低 60G/12.8元，17.8即可享受200G大流量，流媒体支持**
-
-👉[TapFog官方网址入口](https://tapfog.com/#/register?code=TCEXhxI9)
+## 六、[魔戒](https://mojie.ws/#/register?code=kaPXUS5U)
+&emsp;&emsp;不限速，没有到期时间，不限制人数，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低可至 1 元**。
+👉[魔戒官方网址入口](https://mojie.ws/#/register?code=kaPXUS5U)
 
 
 ## 七、[M78星云](https://m78.at/#/register?code=FBpboMz4)
