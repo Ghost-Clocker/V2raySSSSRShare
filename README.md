@@ -74,7 +74,7 @@
 
 ## 八、[智连云](https://xinzhilian.xyz/register?code=7wOIOjnh)
 
-&emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可开始试用。**月最低14，享受120G大流量，30享不限时大流量套餐150G**
+&emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可开始试用。**有“纯流量”套餐，年付低至仅需 35 元**
 
 👉[智连云官方网址入口](https://xinzhilian.xyz/register?code=7wOIOjnh)
 
