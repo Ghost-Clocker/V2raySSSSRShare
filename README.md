@@ -104,7 +104,7 @@
 
 &emsp;&emsp;100+节点高端稳定大机场，IPEL企业级内网专线，月付最低不到13，超低倍率，三网优化直连。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 
-👉[teacat官方网址入口](https://teacat.cloud/#/register?code=H3L7bmCz)  
+👉[teacat官方网址入口](https://www.teacat999.com/#/register?code=H3L7bmCz)  
 
 
 
