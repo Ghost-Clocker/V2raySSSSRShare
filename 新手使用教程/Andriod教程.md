@@ -1,6 +1,6 @@
 # 应用简介
 
-Clash for Android是基于开源代理软件项目Clash开发的安卓适配版本，性能优异并且持续迭代版本。
+Clash Meta for Android是基于开源代理软件项目Clash开发的安卓适配版本，性能优异并且持续迭代版本。
 
 该客户端仅支持Android 9 以上系统，但是也可能有BUG，不一定兼容市面上所有手机操作系统，如果以下安卓客户端您的手机系统无法使用，请更换其他安卓APP
 
@@ -15,7 +15,7 @@ Clash for Android是基于开源代理软件项目Clash开发的安卓适配版�
 
 👉 [国外网盘下载](https://note.boccc.co/download/New/cfa-2.5.11.apk)（由于下载地址服务器位于欧洲，部分网络可能下载较慢，如有必要请连接代理下载）
 
-👉 [Github下载原版](https://github.com/Kr328/ClashForAndroid/releases)（此代理软件为Github开源项目，有需要可自行在Github下载最新版，部分网络可能下载较慢或者打不开网页，如有必要请连接代理下载）
+👉 [Github下载原版](https://github.com/cfwtf/clash_for_android/releases)（原项目已停更不再维护，此为历史最新版本）
 
 
 **下载APP后一定要记得安装！！！**
