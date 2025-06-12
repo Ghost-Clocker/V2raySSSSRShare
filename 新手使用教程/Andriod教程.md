@@ -11,7 +11,7 @@ Clash for Android是基于开源代理软件项目Clash开发的安卓适配版�
 
 👉 [大陆网盘下载1](https://tagcloud.lanzouw.com/iokrd2hcglmb)（此网盘无需挂代理，大陆网络可以直接打开）
 
-👉 [大陆网盘下载2](https://tagcloud.lanzouw.com/iokrd2hcglmb)（此网盘无需挂代理，大陆网络可以直接打开）
+👉 [大陆网盘下载2](https://share.feijipan.com/s/cjDro9sD)（此网盘无需挂代理，大陆网络可以直接打开）
 
 👉 [国外网盘下载](https://note.boccc.co/download/New/cfa-2.5.11.apk)（由于下载地址服务器位于欧洲，部分网络可能下载较慢，如有必要请连接代理下载）
 
