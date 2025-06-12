@@ -12,13 +12,11 @@ Clash 是一个使用 Go 语言编写，基于规则的跨平台代理软件核�
 
 👉 [国外网盘下载](https://note.boccc.co/download/New/CFW-CN.rar)（由于下载地址服务器位于欧洲，部分网络可能下载较慢，如有必要请连接代理下载）
 
-👉 [Github下载英文原版](https://github.com/Fndroid/clash_for_windows_pkg/releases)（此代理软件为Github开源项目，有需要可自行在Github下载最新版，部分网络可能下载较慢或者打不开网页，如有必要请连接代理下载）
-
-👉 [Github下载中文汉化包](https://github.com/ender-zhao/Clash-for-Windows_Chinese)（此汉化包仅适合原版，下载后请自行按照Github教程汉化）
+👉 [Github原版](https://github.com/Z-Siqi/Clash-for-Windows_Chinese/releases)
 
 # 使用教程
 
-下载完毕后，我们先解压，电脑没有安装解压软件的，自行去【百度】搜索下载一个【360压缩】
+下载完毕后，我们先解压，电脑没有安装解压软件的，自行去【百度】搜索下载一个【7zip】
 
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/1_3wwwtl.png)
 
