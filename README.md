@@ -72,11 +72,11 @@
 👉[M78星云官方网址入口](https://m78.at/#/register?code=FBpboMz4)
 
 
-## 八、[智连云](https://xinzhilian.xyz/register?code=7wOIOjnh)
+## 八、[淘气兔](https://taoqitu.me/index.html?register=fDdqmGm1)
 
-&emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可开始试用。**纯流量套餐，年付低至35元**
+&emsp;&emsp;全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！节点包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时“纯流量”套餐**，无月付、季付或年付限制，用多少算多少，月费低至 7.8 元。
 
-👉[智连云官方网址入口](https://xinzhilian.xyz/register?code=7wOIOjnh)
+👉[淘气兔官方网址入口](https://taoqitu.me/index.html?register=fDdqmGm1)
 
 
 ## 九、[TSMeow](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
