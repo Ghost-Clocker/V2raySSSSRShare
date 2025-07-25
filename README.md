@@ -86,11 +86,11 @@
 👉[TSMeow官方网址入口](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
 
 
-## 十、[MESL](https://in.mesl.cloud/#/register?code=hRteYPbP)
+## 十、[NiceDuck](https://dash.niceduck.io/register?code=g1axG9Gs)
 
-&emsp;&emsp; 多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港，澳门，日本，台湾， 新加坡，美国, 蒙古，韩国，朝鲜，印度，印度尼西亚，越南，菲律宾，柬埔寨，马来西亚，泰国，哥伦比亚，缅甸，孟加拉国，尼泊尔，澳大利亚，新西兰，加拿大，墨西哥，巴西，智利，阿根廷，秘鲁，玻利维亚，德国，英国，法国，荷兰，新西兰，爱尔兰，意大利，卢森堡，瑞士，丹麦，芬兰，瑞典，挪威，奥地利，捷克，冰岛，土耳其，比利时，葡萄牙，波兰，爱沙尼亚，匈牙利，俄罗斯，乌克兰，摩尔多瓦，罗马尼亚，保加利亚，塞尔维亚，希腊，以色列，伊朗，多哥，埃及，约旦，迪拜，沙特阿拉伯，阿曼，乌兹别克斯坦，巴基斯坦，哈萨克斯坦，尼日利亚，安哥拉，南非，南极等数十个国家和地区。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。**独家保障新疆地区**，现在注册即可免费白嫖。
+&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月 6 块 6 毛 6**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。
 
-👉[MESL官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
+👉[NiceDuck官方网址入口](https://dash.niceduck.io/register?code=g1axG9Gs)
 
 
 ## 十一、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
