@@ -15,7 +15,7 @@ Shadowrocket是一个性能优异的iOS全局代理软件
 
 若需要购买此APP可以前往下面网站购买外区账号，即可下载
 
-👉 [购买渠道1](https://852faka.top/)（推荐）
+👉 [购买渠道1](https://852faka.pro/)（推荐）
 
 👉 [购买渠道2](https://www.wxsdg.store/)（推荐）
 
