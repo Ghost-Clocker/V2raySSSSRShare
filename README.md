@@ -109,7 +109,7 @@
 
 ## 十三、[随心飞](https://www.suixinfei.co/auth/signup?referrer=kJ88hpW1)
 
-&emsp;&emsp;专有优质中转广移、沪移线路，SS 协议大机场，全场节点1倍率、无限速，节点包括香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度，尼日利亚等，解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。解锁chatgpt，**最低月付仅需10元，100G大流量，提供 不限时“纯流量”套餐（年付优惠码：9999）**
+&emsp;&emsp;专有优质中转广移、沪移线路，SS 协议大机场，全场节点1倍率、无限速，节点包括香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度，尼日利亚等，解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。解锁chatgpt。**最低月付仅需10元，100G大流量，提供 不限时“纯流量”套餐（年付优惠码：9999）**
 
 👉[随心飞官方网址入口](https://www.suixinfei.co/auth/signup?referrer=kJ88hpW1)  
 
