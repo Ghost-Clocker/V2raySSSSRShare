@@ -107,7 +107,21 @@
 👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
 
-## 十三、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
+## 十三、[随心飞](https://www.suixinfei.co/auth/signup?referrer=kJ88hpW1)
+
+&emsp;&emsp;专有优质中转广移、沪移线路，SS 协议大机场，全场节点1倍率、无限速，节点包括香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度，尼日利亚等，解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。解锁chatgpt，**最低月付仅需10元，100G大流量，提供 不限时“纯流量”套餐（年付优惠码：9999）**
+
+👉[随心飞官方网址入口](https://www.suixinfei.co/auth/signup?referrer=kJ88hpW1)  
+
+
+## 十四、[跨越网络](https://kuayue2.com/register?code=wBwZFCFZ)
+
+&emsp;&emsp;老牌专线机场，全大陆中转，深港，京德专线，三网入口，电信不限速，跨省不限速，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验。节点包括香港，新加坡，日本，台湾，美国，越南，泰国，马来西亚，印度尼西亚，柬埔寨，英国，法国，德国，西班牙，意大利等。支持 Netflix / Hulu / HBO / Disney+ / DAZN 等主流平台，解锁 ChatGPT。覆盖全球 30+ 个国家/地区、提供 50+ 个优质节点。**提供“纯流量”套餐。月付低至仅需 10 元，包含128G大流量**
+
+👉[跨越网络官方网址入口](https://kuayue2.com/register?code=wBwZFCFZ)  
+
+
+## 十五、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
 
 &emsp;&emsp;100+节点高端稳定大机场，IPEL企业级内网专线，月付最低不到13，超低倍率，三网优化直连。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 
