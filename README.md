@@ -102,7 +102,7 @@
 
 ## 十二、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
-&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，**提供0.1倍率节点**，使用10G流量套餐只计费1G，适合重度人群。**白嫖优惠码：599_f3cz8bzm**。
+&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，印度，美国，加拿大，英国，德国，法国，俄罗斯，阿根廷，巴西，土耳其，澳大利亚等。高速稳定不怕墙。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll等主流流媒体。客服响应快，服务态度友好，注册即可白嫖三天体验套餐，**提供0.1倍率节点**，使用10G流量套餐只计费1G，适合重度人群。**白嫖优惠码：599_f3cz8bzm**。
 
 👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
