@@ -59,11 +59,11 @@
 👉[抖云官方网址入口](https://douyunjiasu.sbs/#/register?code=1H1sqlEt)
 
 
-## 六、[FatcatCloud](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
+## 六、[FatcatCloud（肥猫云）](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
 
 &emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数。**
 
-👉[FatcatCloud官方网址入口](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)  
+👉[肥猫云官方网址入口](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)  
 
 
 ## 七、[魔戒](https://mojie.ws/#/register?code=kaPXUS5U)
