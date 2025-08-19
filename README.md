@@ -81,7 +81,7 @@
 
 ## 九、[淘气兔](https://taoqitu.me/index.html?register=fDdqmGm1)
 
-&emsp;&emsp;全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！节点包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时“纯流量”套餐**，无月付、季付或年付限制，用多少算多少，**月费低至 7.8 元**。
+&emsp;&emsp;全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！节点包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时“纯流量”套餐，最低22元**，无月付、季付或年付限制，用多少算多少，**月费低至 7.4 元**。
 
 👉[淘气兔官方网址入口](https://taoqitu.me/index.html?register=fDdqmGm1)
 
