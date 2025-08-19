@@ -59,11 +59,11 @@
 👉[抖云官方网址入口](https://douyunjiasu.sbs/#/register?code=1H1sqlEt)
 
 
-## 六、[Gatern](https://shuttle.gt-in.com/aff.php?aff=2437)
+## 六、[FatcatCloud](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
 
-&emsp;&emsp;高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，巴基斯坦，以色列，阿联酋，瑞典，波兰，丹麦，立陶宛，拉脱维亚，瑞士，罗马尼亚，新西兰，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁，有不限时流量包套餐。
+&emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数**
 
-👉[Gatern官方网址入口](https://shuttle.gt-all.com/aff.php?aff=2437)
+👉[FatcatCloud官方网址入口](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)  
 
 
 ## 七、[魔戒](https://mojie.ws/#/register?code=kaPXUS5U)
@@ -107,18 +107,18 @@
 👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
 
-## 十三、[随心飞](https://www.suixinfei.co/auth/signup?referrer=kJ88hpW1)
+## 十三、[Gatern](https://shuttle.gt-in.com/aff.php?aff=2437)
 
-&emsp;&emsp;专有优质中转广移、沪移线路，SS 协议大机场，全场节点1倍率、无限速，节点包括香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度，尼日利亚等，解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。解锁chatgpt。**最低月付仅需10元，100G大流量，提供 不限时“纯流量”套餐（年付优惠码：9999）**
+&emsp;&emsp;高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，巴基斯坦，以色列，阿联酋，瑞典，波兰，丹麦，立陶宛，拉脱维亚，瑞士，罗马尼亚，新西兰，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁，有不限时流量包套餐。
 
-👉[随心飞官方网址入口](https://www.suixinfei.co/auth/signup?referrer=kJ88hpW1)  
+👉[Gatern官方网址入口](https://shuttle.gt-all.com/aff.php?aff=2437)
 
 
-## 十四、[跨越网络](https://kuayue2.com/register?code=wBwZFCFZ)
+## 十四、[StarLink（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
 
-&emsp;&emsp;老牌专线机场，全大陆中转，深港，京德专线，三网入口，电信不限速，跨省不限速，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验。节点包括香港，新加坡，日本，台湾，美国，越南，泰国，马来西亚，印度尼西亚，柬埔寨，英国，法国，德国，西班牙，意大利等。支持 Netflix / Hulu / HBO / Disney+ / DAZN 等主流平台，解锁 ChatGPT。覆盖全球 30+ 个国家/地区、提供 50+ 个优质节点。**提供“纯流量”套餐。月付低至仅需 10 元，包含128G大流量**
+&emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.88，拥有198G大流量，独家提供海外用户回流套餐**
 
-👉[跨越网络官方网址入口](https://kuayue2.com/register?code=wBwZFCFZ)  
+👉[StarLink官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
 
 
 ## 十五、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
