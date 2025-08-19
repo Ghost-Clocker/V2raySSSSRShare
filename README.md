@@ -48,20 +48,20 @@
 
 ## 四、[智连云](https://xinzhilian.xyz/register?code=7wOIOjnh)
 
-&emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netfilx/Hulu/Hbo/Disney+/Dazn等流媒体和ChatGPT，有纯“流量”套餐，全球 30+ 国家/地区， 50+ 节点，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持，个人使用**不限制设备**，注册即可开始试用。**“纯流量”套餐，年付低至仅需 35 元，150G大流量；月付套餐14起**
+&emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netfilx/Hulu/Hbo/Disney+/Dazn等流媒体和ChatGPT，有纯“流量”套餐，全球 30+ 国家/地区， 50+ 节点，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持，个人使用**不限制设备**，注册即可开始试用。**“纯流量”套餐，年付低至仅需 35 元，150G大流量；月付套餐14起。**
 
 👉[智连云官方网址入口](https://xinzhilian.xyz/register?code=7wOIOjnh)
 
 
 ## 五、[抖云加速](https://douyunjiasu.sbs/#/register?code=1H1sqlEt)
-&emsp;&emsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速，全球25+热门国家，50+ 节点。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。**月最低15.88，128G大流量**
+&emsp;&emsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速，全球25+热门国家，50+ 节点。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。**月最低15.88，128G大流量。**
 
 👉[抖云官方网址入口](https://douyunjiasu.sbs/#/register?code=1H1sqlEt)
 
 
 ## 六、[FatcatCloud](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
 
-&emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数**
+&emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数。**
 
 👉[FatcatCloud官方网址入口](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)  
 
@@ -74,7 +74,7 @@
 
 ## 八、[M78星云](https://m78.at/#/register?code=FBpboMz4)
 
-&emsp;&emsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**最低套餐7.8/月，特有0.75倍率节点，赠送Emby服务**，新用户**7.8折优惠码：m78-22off，永久有效 季付85折优惠码：season85 半年付82折优惠码：halfyear82 年付8折优惠码：year80**
+&emsp;&emsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**最低套餐7.8/月，特有0.75倍率节点，赠送Emby服务**，新用户**7.8折优惠码：m78-22off，永久有效 季付85折优惠码：season85 半年付82折优惠码：halfyear82 年付8折优惠码：year80**。
 
 👉[M78星云官方网址入口](https://m78.at/#/register?code=FBpboMz4)
 
