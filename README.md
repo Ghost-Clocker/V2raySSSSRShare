@@ -81,7 +81,7 @@
 
 ## 九、[淘气兔](https://taoqitu.me/index.html?register=fDdqmGm1)
 
-&emsp;&emsp;全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！节点包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时“纯流量”套餐，最低22元**，无月付、季付或年付限制，用多少算多少，**月费低至 7.4 元，十一专属优惠码：guoqing@90**。
+&emsp;&emsp;全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！节点包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时“纯流量”套餐，最低22元**，无月付、季付或年付限制，用多少算多少，**月费低至 7.4 元**。
 
 👉[淘气兔官方网址入口](https://taoqitu.me/index.html?register=fDdqmGm1)
 
@@ -95,7 +95,7 @@
 
 ## 十一、[NiceDuck（好鸭）](https://dash.niceduck.io/register?code=g1axG9Gs)
 
-&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月6.66元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新，**全场7折优惠码：niceduck777（至2025年10月31日）**。
+&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月6.66元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。
 
 👉[NiceDuck官方网址入口](https://dash.niceduck.io/register?code=g1axG9Gs)
 
