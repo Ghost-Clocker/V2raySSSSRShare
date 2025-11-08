@@ -53,10 +53,10 @@
 👉[智连云官方网址入口](https://xinzhilian.xyz/register?code=7wOIOjnh)
 
 
-## 五、[抖云加速](https://dyun.us/#/register?code=1H1sqlEt)
-&emsp;&emsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速，全球25+热门国家，50+ 节点。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。**月最低15.88，128G大流量。**
+## 五、[Fancy network](https://dash.justfancy.net/register?code=7UHw19XC)
+&emsp;&emsp;全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！节点地区包括香港，台湾，日本，新加坡，美国，韩国，英国，印度，尼日利亚等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。月套餐拥有120G大流量**新注册用户可享受88折。**
 
-👉[抖云官方网址入口](https://dyun.us/#/register?code=1H1sqlEt)
+👉[Fancy network](https://dash.justfancy.net/register?code=7UHw19XC)
 
 
 ## 六、[FatcatCloud（肥猫云）](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
