@@ -16,13 +16,7 @@ Clash Verge  Windows  是基于规则的跨平台代理软件核心程序。
 
 # 使用教程
 
-下载完毕后，我们先解压，电脑没有安装解压软件的，自行去【百度】搜索下载一个【7zip】
-
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/1_3wwwtl.png)
-
-解压后，我们右键以管理员身份运行
-
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/2_qnnc17.png)
+下载完毕后，我们直接安装，安装后，我们在桌面找到Clash以管理员身份运行
 
 第一次使用会提示Windows安全中心警报，我们按照下方图示勾选即可。
 
