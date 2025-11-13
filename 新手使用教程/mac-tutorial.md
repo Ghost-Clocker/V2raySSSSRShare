@@ -9,9 +9,9 @@ ClashX 旨在提供一个简单轻量化的代理客户端
 
 # 应用下载
 
-👉 [大陆网盘下载](https://tagcloud.lanzouw.com/ilfkd28p4yla)（此网盘无需挂代理，大陆网络可以直接打开）
+👉 [大陆网盘下载1](https://5aarifyj.lanzoup.com/iVJJF3a5dboh)（此网盘无需挂代理，大陆网络可以直接打开）
 
-👉 [国外网盘下载](https://note.boccc.co/download/New/ClashX.dmg)（由于下载地址服务器位于欧洲，部分网络可能下载较慢，如有必要请连接代理下载）
+👉 [大陆网盘下载2](https://share.feijipan.com/s/moEUHJ2p)（由于下载地址服务器位于欧洲，部分网络可能下载较慢，如有必要请连接代理下载）
 
 👉 [Github下载原版](https://github.com/githubvpn007/ClashX/releases)（此代理软件为Github开源项目，有需要可自行在Github下载最新版，部分网络可能下载较慢或者打不开网页，如有必要请连接代理下载）
 
