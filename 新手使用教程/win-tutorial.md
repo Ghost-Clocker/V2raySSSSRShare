@@ -1,6 +1,6 @@
 # 应用简介
 
-Clash 是一个使用 Go 语言编写，基于规则的跨平台代理软件核心程序。
+Clash Verge  Windows  是基于规则的跨平台代理软件核心程序。
 
 该客户端仅支持Windows 10 以上系统
 
@@ -8,11 +8,11 @@ Clash 是一个使用 Go 语言编写，基于规则的跨平台代理软件核�
 
 应用下载
 
-👉 [大陆网盘下载](https://tagcloud.lanzoue.com/iwyP51dkexsf)（此网盘无需挂代理，大陆网络可以直接打开）
+👉 [大陆网盘下载1](https://5aarifyj.lanzoup.com/igS9Q3a5dqad)（此网盘无需挂代理，大陆网络可以直接打开）
 
-👉 [国外网盘下载](https://note.boccc.co/download/New/CFW-CN.rar)（由于下载地址服务器位于欧洲，部分网络可能下载较慢，如有必要请连接代理下载）
+👉 [大陆网盘下载2](https://share.feijipan.com/s/dd0gSwcf)（此网盘无需挂代理，大陆网络可以直接打开）
 
-👉 [Github原版](https://github.com/Z-Siqi/Clash-for-Windows_Chinese/releases)
+👉 [Github原版](https://github.com/clash-verge-rev/clash-verge-rev)
 
 # 使用教程
 
