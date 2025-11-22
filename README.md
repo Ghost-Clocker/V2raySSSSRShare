@@ -86,11 +86,11 @@
 👉[淘气兔官方网址入口](https://taoqitu.me/index.html?register=fDdqmGm1)
 
 
-## 十、[TSMeow（千速喵）](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
+## 十、[litpupu（千速喵）](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
 
 &emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。**特有0.6倍率节点**节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，68.8即可拥有不限时512G大流量套餐**。
 
-👉[TSMeow（千速喵）官方网址入口](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
+👉[litpupu（千速喵）官方网址入口](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
 
 
 ## 十一、[NiceDuck（好鸭）](https://dash.niceduck.io/register?code=g1axG9Gs)
@@ -114,11 +114,11 @@
 👉[Gatern官方网址入口](https://shuttle.gt-all.com/aff.php?aff=2437)
 
 
-## 十四、[StarLink（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
+## 十四、[StarTrail（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
 
 &emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.88，拥有198G大流量，独家提供海外用户回流套餐**
 
-👉[StarLink官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
+👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
 
 
 ## 十五、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
