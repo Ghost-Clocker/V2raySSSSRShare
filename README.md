@@ -46,11 +46,11 @@
 👉[SausageCloud官方网址入口](https://reborn.kaochang.ltd/#/register?code=dx2i5cif)
 
 
-## 四、[智连云](https://xinzhilian.xyz/register?code=7wOIOjnh)
+## 四、[智连云](https://zhilianyun.co/register?code=7wOIOjnh)
 
 &emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netfilx/Hulu/Hbo/Disney+/Dazn等流媒体和ChatGPT，有纯“流量”套餐，全球 30+ 国家/地区， 50+ 节点，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持，个人使用**不限制设备**，注册即可开始试用。**“纯流量”套餐，年付低至仅需 35 元，150G大流量；月付套餐14起。**
 
-👉[智连云官方网址入口](https://xinzhilian.xyz/register?code=7wOIOjnh)
+👉[智连云官方网址入口](https://zhilianyun.co/register?code=7wOIOjnh)
 
 
 ## 五、[Fancy network](https://dash.justfancy.net/register?code=7UHw19XC)
