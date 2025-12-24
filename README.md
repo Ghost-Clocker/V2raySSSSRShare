@@ -61,7 +61,7 @@
 
 ## 六、[FatcatCloud（肥猫云）](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
 
-&emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数。**
+&emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数。月付/季度/半年 ：85折优惠，优惠码：hello202685；年付/年付以上：8折优惠，优惠码：hello202680**
 
 👉[肥猫云官方网址入口](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)  
 
@@ -102,7 +102,7 @@
 
 ## 十二、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
-&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，印度，美国，加拿大，英国，德国，法国，俄罗斯，阿根廷，巴西，土耳其，澳大利亚等。高速稳定不怕墙。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll等主流流媒体。客服响应快，服务态度友好，注册即可白嫖三天体验套餐（优惠码：599_f3cz8bzm），**独家提供0.1倍率节点**。
+&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，印度，美国，加拿大，英国，德国，法国，俄罗斯，阿根廷，巴西，土耳其，澳大利亚等。高速稳定不怕墙。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll等主流流媒体。客服响应快，服务态度友好，注册即可白嫖三天体验套餐（优惠码：599_f3cz8bzm），**独家提供0.1倍率节点，双旦活动优惠码：fastlink2026，全场8折**。
 
 👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
