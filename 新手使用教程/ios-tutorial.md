@@ -15,13 +15,8 @@ Shadowrocket是一个性能优异的iOS全局代理软件
 
 若需要购买此APP可以前往下面网站购买外区账号，即可下载
 
-👉 [购买渠道1](https://852faka.pro/)（推荐）
+👉 [ios客户端教程戳这里](https://github.com/hwanz/SSR-V2ray-Trojan)
 
-👉 [购买渠道2](https://www.wxsdg.store/)（推荐）
-
-👉 [免费共享账号](https://appledi.com/)（安全性差，慎用）
-
-👉 [（新）免费共享账号](https://idshare001.me/goso.html)（机器+人工自动维护，每日更新提供两个可用账号，安全性差，慎用）
 
 
 
