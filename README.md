@@ -93,11 +93,11 @@
 👉[litpupu（千速喵）官方网址入口](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
 
 
-## 十一、[NiceDuck（好鸭）](https://dash.niceduck.io/register?code=g1axG9Gs)
+## 十一、[NiceDuck（好鸭）](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
 &emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月6.66元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。
 
-👉[NiceDuck官方网址入口](https://dash.niceduck.io/register?code=g1axG9Gs)
+👉[NiceDuck官方网址入口](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
 
 ## 十二、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
