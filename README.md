@@ -32,11 +32,11 @@
 👉[TAG官方网址入口](https://tagss.pro/#/auth/uymBgx8S)
 
 
-## 二、[FsCloud](https://dash.fscloud.app/#/register?code=rsFPPHnq)
+## 二、[FsCloud](https://web.fscloud.app/#/register?code=rsFPPHnq)
 
 &emsp;&emsp;传说中的一元机场，性价比no.1机场，突破超低价，同时能保证速度稳定，解锁Netflix、Disney+、Hulu等主流流媒体， 解锁 ChatGPT。登录设备无个数限制，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，**新用户注册可免费试用 3 天100g流量，白菜价年付只要13元，且拥有100G/月大流量，相当nice。**
 
-👉[FsCloud官方网址入口](https://dash.fscloud.app/#/register?code=rsFPPHnq)
+👉[FsCloud官方网址入口](https://web.fscloud.app/#/register?code=rsFPPHnq)
 
 
 ## 三、[SausageCloud](https://reborn.kaochang.ltd/#/register?code=dx2i5cif)
