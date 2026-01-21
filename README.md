@@ -46,11 +46,11 @@
 👉[SausageCloud官方网址入口](https://reborn.kaochang.ltd/#/register?code=dx2i5cif)
 
 
-## 四、[智连云](https://zhilianyun.co/register?code=7wOIOjnh)
+## 四、[MESL](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
-&emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netfilx/Hulu/Hbo/Disney+/Dazn等流媒体和ChatGPT，有纯“流量”套餐，全球 30+ 国家/地区， 50+ 节点，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持，个人使用**不限制设备**，注册即可开始试用。**“纯流量”套餐，年付低至仅需 35 元，150G大流量；月付套餐14起。**
+&emsp;&emsp;老牌高端大机场，BGP+IPLC 专线传输，节点包括：香港，澳门，日本，台湾，新加坡，美国，蒙古，韩国，朝鲜，印度，印度尼西亚，越南，菲律宾，柬埔寨，马来西亚，泰国，哥伦比亚，缅甸，孟加拉国，尼泊尔，澳大利亚，新西兰，加拿大，墨西哥，巴西，智利，阿根廷，秘鲁，玻利维亚，德国，英国，法国，荷兰，新西兰，爱尔兰，意大利，卢森堡，瑞士，丹麦，芬兰，瑞典，挪威，奥地利，捷克，冰岛，土耳其，比利时，葡萄牙，波兰，爱沙尼亚，匈牙利，俄罗斯，乌克兰，摩尔多瓦，罗马尼亚，保加利亚，塞尔维亚，希腊，以色列，伊朗，多哥，埃及，约旦，迪拜，沙特阿拉伯，阿曼，乌兹别克斯坦，巴基斯坦，哈萨克斯坦，尼日利亚，安哥拉，南非，南极等数十个国家和地区。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体。独家保障新疆地区，支持Windows/Mac/iOS/Android/路由器，多设备同时使用。**注册即享 3 天免费体验**
 
-👉[智连云官方网址入口](https://zhilianyun.co/register?code=7wOIOjnh)
+👉[MESL官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
 
 ## 五、[Fancy network](https://dash.justfancy.net/register?code=7UHw19XC)
@@ -102,7 +102,7 @@
 
 ## 十二、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
-&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，印度，美国，加拿大，英国，德国，法国，俄罗斯，阿根廷，巴西，土耳其，澳大利亚等。高速稳定不怕墙。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll等主流流媒体。客服响应快，服务态度友好，注册即可白嫖三天体验套餐（优惠码：599_f3cz8bzm），**独家提供0.1倍率节点，双旦活动优惠码：fastlink2026，全场8折**。
+&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，印度，美国，加拿大，英国，德国，法国，俄罗斯，阿根廷，巴西，土耳其，澳大利亚等。高速稳定不怕墙。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll等主流流媒体。客服响应快，服务态度友好，注册即可白嫖三天体验套餐（优惠码：599_f3cz8bzm），**独家提供0.1倍率节点，双旦活动优惠码：fastlink2026，全场6.4折**。
 
 👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
