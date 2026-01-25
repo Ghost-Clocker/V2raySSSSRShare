@@ -79,11 +79,11 @@
 👉[M78星云官方网址入口](https://m78.at/#/register?code=FBpboMz4)
 
 
-## 九、[淘气兔](https://taoqitu.me/index.html?register=fDdqmGm1)
+## 九、[良心云](https://xn--9kqz23b19z.com/#/register?code=2qiGi2K3)
 
-&emsp;&emsp;全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！节点包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时“纯流量”套餐，最低22元**，无月付、季付或年付限制，用多少算多少，**月费低至 7.4 元**。
+&emsp;&emsp;良心机场，人如其名，**主打便宜，量大，不限速**的极致性价比机场，所有节点1.0倍率，无高倍线路。节点包括节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大等。解锁Netflix、Disney+、Hulu、HBO、Abema、Tvb等主流流媒体， 解锁 ChatGPT。**月付仅6月即可享受1000G大流量，一次性不限时1000G流量低至21**。
 
-👉[淘气兔官方网址入口](https://taoqitu.me/index.html?register=fDdqmGm1)
+👉[良心云官方网址入口](https://xn--9kqz23b19z.com/#/register?code=2qiGi2K3)
 
 
 ## 十、[litpupu（千速喵）](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
