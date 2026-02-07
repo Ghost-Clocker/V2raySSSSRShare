@@ -61,7 +61,7 @@
 
 ## 六、[FatcatCloud（肥猫云）](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
 
-&emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数。月付/季度/半年 ：85折优惠，优惠码：hello202685；年付/年付以上：8折优惠，优惠码：hello202680**
+&emsp;&emsp;全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，**不限制设备登录数。**
 
 👉[肥猫云官方网址入口](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)  
 
@@ -74,14 +74,14 @@
 
 ## 八、[M78星云](https://m78.at/#/register?code=FBpboMz4)
 
-&emsp;&emsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**最低套餐7.8/月，特有0.75倍率节点，赠送Emby服务**，新用户**7.8折优惠码：m78-22off，永久有效 季付85折优惠码：season85 半年付82折优惠码：halfyear82 年付8折优惠码：year80**。
+&emsp;&emsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**最低套餐7.8/月，特有0.75倍率节点，赠送Emby服务**，新用户**7.8折优惠码：`m78-22off`，永久有效**。
 
 👉[M78星云官方网址入口](https://m78.at/#/register?code=FBpboMz4)
 
 
 ## 九、[智连云](https://zzzzz8.com/register?code=7wOIOjnh)
 
-&emsp;&emsp;全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验。节点包括：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。有**纯流量**套餐，年付低至仅需 35 元。满足各类用户需求。**季付/半年付优惠 20%（优惠码：1111）。年付优惠 30%（优惠码：2222）。不限时套餐优惠 10%（优惠码：3333）**
+&emsp;&emsp;全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验。节点包括：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。有**纯流量**套餐，年付低至仅需 35 元。满足各类用户需求。**季付/半年付优惠 20%（优惠码：`1111`）。年付优惠 30%（优惠码：`2222`）。不限时套餐优惠 10%（优惠码：`3333`）**
 
 👉[智连云官方网址入口](https://zzzzz8.com/register?code=7wOIOjnh)
 
@@ -95,7 +95,7 @@
 
 ## 十一、[NiceDuck（好鸭）](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
-&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月6.66元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。
+&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月6.66元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**春节优惠活动全场 75 折优惠码：`duck-75`**
 
 👉[NiceDuck官方网址入口](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
