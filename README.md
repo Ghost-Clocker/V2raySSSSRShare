@@ -86,11 +86,11 @@
 👉[智连云官方网址入口](https://zzzzz8.com/register?code=7wOIOjnh)
 
 
-## 十、[litpupu（千速喵）](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
+## 十、[litpupu（千速喵）](https://tmsreta.top/#/register?code=3h8G4ZaQ)
 
-&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。**特有0.6倍率节点**节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，68.8即可拥有不限时512G大流量套餐**。
+&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。**特有0.6倍率节点**节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，68.8即可拥有不限时512G大流量套餐，春节全场 85 折优惠码：（优惠码：`pupu8`）**。
 
-👉[litpupu（千速喵）官方网址入口](https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ)
+👉[litpupu（千速喵）官方网址入口](https://tmsreta.top/#/register?code=3h8G4ZaQ)
 
 
 ## 十一、[NiceDuck（好鸭）](https://vuser.niceduck.io/register?code=g1axG9Gs)
