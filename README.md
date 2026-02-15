@@ -116,7 +116,7 @@
 
 ## 十四、[StarTrail（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
 
-&emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.88，拥有198G大流量，独家提供海外用户回流套餐**
+&emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.88，拥有198G大流量，独家提供海外用户回流套餐，春节8.5折优惠码：`Star085`**
 
 👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
 
