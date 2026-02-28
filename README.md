@@ -79,11 +79,11 @@
 👉[M78星云官方网址入口](https://m78star.cloud/#/register?code=FBpboMz4)
 
 
-## 九、[智连云](https://zzzzz8.com/register?code=7wOIOjnh)
+## 九、[Bocchi](https://haruka.bocchi.ooo/#/register?code=91WmiwF2)
 
-&emsp;&emsp;全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验。节点包括：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。有**纯流量**套餐，年付低至仅需 35 元。满足各类用户需求。**季付/半年付优惠 20%（优惠码：`1111`）。年付优惠 30%（优惠码：`2222`）。不限时套餐优惠 10%（优惠码：`3333`）**
+&emsp;&emsp;全大陆中转，**不限制使用设备数**，协议支持 Shadowsocks。节点包括：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT、Claude 等 AI 工具。**月付低至8.8**，100G大流量
 
-👉[智连云官方网址入口](https://zzzzz8.com/register?code=7wOIOjnh)
+👉[Bocchi官方网址入口](https://haruka.bocchi.ooo/#/register?code=91WmiwF2)
 
 
 ## 十、[litpupu（千速喵）](https://tmsreta.top/#/register?code=3h8G4ZaQ)
