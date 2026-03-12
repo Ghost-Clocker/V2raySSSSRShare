@@ -48,7 +48,7 @@
 
 ## 四、[MESL](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
-&emsp;&emsp;老牌高端大机场，BGP+IPLC 专线传输，节点包括：香港，澳门，日本，台湾，新加坡，美国，蒙古，韩国，朝鲜，印度，印度尼西亚，越南，菲律宾，柬埔寨，马来西亚，泰国，哥伦比亚，缅甸，孟加拉国，尼泊尔，澳大利亚，新西兰，加拿大，墨西哥，巴西，智利，阿根廷，秘鲁，玻利维亚，德国，英国，法国，荷兰，新西兰，爱尔兰，意大利，卢森堡，瑞士，丹麦，芬兰，瑞典，挪威，奥地利，捷克，冰岛，土耳其，比利时，葡萄牙，波兰，爱沙尼亚，匈牙利，俄罗斯，乌克兰，摩尔多瓦，罗马尼亚，保加利亚，塞尔维亚，希腊，以色列，伊朗，多哥，埃及，约旦，迪拜，沙特阿拉伯，阿曼，乌兹别克斯坦，巴基斯坦，哈萨克斯坦，尼日利亚，安哥拉，南非，南极等数十个国家和地区。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体。独家保障新疆地区，支持Windows/Mac/iOS/Android/路由器，多设备同时使用。**注册即享 3 天免费体验，春节全场8折优惠码：`15%OFF`**
+&emsp;&emsp;老牌高端大机场，BGP+IPLC 专线传输，节点包括：香港，澳门，日本，台湾，新加坡，美国，蒙古，韩国，朝鲜，印度，印度尼西亚，越南，菲律宾，柬埔寨，马来西亚，泰国，哥伦比亚，缅甸，孟加拉国，尼泊尔，澳大利亚，新西兰，加拿大，墨西哥，巴西，智利，阿根廷，秘鲁，玻利维亚，德国，英国，法国，荷兰，新西兰，爱尔兰，意大利，卢森堡，瑞士，丹麦，芬兰，瑞典，挪威，奥地利，捷克，冰岛，土耳其，比利时，葡萄牙，波兰，爱沙尼亚，匈牙利，俄罗斯，乌克兰，摩尔多瓦，罗马尼亚，保加利亚，塞尔维亚，希腊，以色列，伊朗，多哥，埃及，约旦，迪拜，沙特阿拉伯，阿曼，乌兹别克斯坦，巴基斯坦，哈萨克斯坦，尼日利亚，安哥拉，南非，南极等数十个国家和地区。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体。独家保障新疆地区，支持Windows/Mac/iOS/Android/路由器，多设备同时使用。**注册即享 3 天免费体验**
 
 👉[MESL官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
@@ -74,56 +74,63 @@
 
 ## 八、[M78星云](https://m78star.cloud/#/register?code=FBpboMz4)
 
-&emsp;&emsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**最低套餐7.8/月，特有0.75倍率节点，赠送Emby服务**，新用户**7.8折优惠码：`m78-22off`，永久有效；新春活动：季付85折优惠码：`season85`；半年付82折优惠码：`halfyear82`；年付8折优惠码：`year80`**。
+&emsp;&emsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**最低套餐7.8/月，特有0.75倍率节点，赠送Emby服务**，新用户**7.8折优惠码：`m78-22off`，永久有效；**。
 
 👉[M78星云官方网址入口](https://m78star.cloud/#/register?code=FBpboMz4)
 
 
-## 九、[青云梯](https://ivt02.qytaff.cc/register?aff=h5RRgkgg)
+## 九、[光速云](https://a01.gsyvipaff.cc/#/?code=Hx3EeWiq)
 
-&emsp;&emsp;全IPLC专线高端机场，最大提供2.5GBPs速率，**不限制使用设备数**，高效客服响应。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国、阿根廷。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT、Claude 等 AI 工具。
+&emsp;&emsp;隧道中转专线机场，已扩展至 60+ 独立 IP，带宽 2Gbps+，高峰冗余 500M，海外团队运营，长期稳定，教程与客服万神。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国。原生 IP，支持解锁 Netflix / TVB / TikTok 等流媒体，支持 Windows / Mac / Linux / Android / iOS 多平台 Trojan、V2Ray 订阅
+
+👉[光速云官方网址入口](https://a01.gsyvipaff.cc/#/?code=Hx3EeWiq)
+
+
+## 十、[青云梯](https://ivt02.qytaff.cc/register?aff=h5RRgkgg)
+
+&emsp;&emsp;全IPLC专线高端机场，最大提供2.5GBPs速率，**不限制使用设备数**，高效客服响应。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国、阿根廷。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。
 
 👉[青云梯官方网址入口](https://ivt02.qytaff.cc/register?aff=h5RRgkgg)
 
 
-## 十、[litpupu（千速喵）](https://tmsreta.top/#/register?code=3h8G4ZaQ)
+## 十一、[litpupu（千速喵）](https://tmsreta.top/#/register?code=3h8G4ZaQ)
 
-&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。**特有0.6倍率节点**节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，拥有不限时512G大流量套餐，春节全场 85 折优惠码：（优惠码：`pupu8`）**。
+&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。**特有0.6倍率节点**节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，拥有不限时512G大流量套餐**。
 
 👉[litpupu（千速喵）官方网址入口](https://tmsreta.top/#/register?code=3h8G4ZaQ)
 
 
-## 十一、[NiceDuck（好鸭）](https://vuser.niceduck.io/register?code=g1axG9Gs)
+## 十二、[NiceDuck（好鸭）](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
 &emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月6.66元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**春节优惠活动全场 75 折优惠码：`duck-75`**
 
 👉[NiceDuck官方网址入口](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
 
-## 十二、[FASTLINK](https://a01.flaff9.cc/auth/register?code=dzyz)
+## 十三、[FASTLINK](https://a01.flaff9.cc/auth/register?code=dzyz)
 
 &emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，印度，美国，加拿大，英国，德国，法国，俄罗斯，阿根廷，巴西，土耳其，澳大利亚等。高速稳定不怕墙。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll等主流流媒体。客服响应快，服务态度友好，注册即可白嫖三天体验套餐（优惠码：599_f3cz8bzm），**独家提供0.1倍率节点，活动优惠码：`599_f3cz8bzm`**。
 
 👉[FASTLINK官方网址入口](https://a01.flaff9.cc/auth/register?code=dzyz)
 
 
-## 十三、[Gatern](https://s.gtoyes.com/aff.php?aff=2437)
+## 十四、[Gatern](https://s.gtoyes.com/aff.php?aff=2437)
 
 &emsp;&emsp;高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，巴基斯坦，以色列，阿联酋，瑞典，波兰，丹麦，立陶宛，拉脱维亚，瑞士，罗马尼亚，新西兰，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁，有不限时流量包套餐。
 
 👉[Gatern官方网址入口](https://s.gtoyes.com/aff.php?aff=2437)
 
 
-## 十四、[StarTrail（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
+## 十五、[StarTrail（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
 
-&emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.88，拥有198G大流量，独家提供海外用户回流套餐，春节8.5折优惠码：`Star085`**
+&emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.88，拥有198G大流量，独家提供海外用户回流套餐**
 
 👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
 
 
-## 十五、[Teacat](https://www.teacat999.com/#/register?code=H3L7bmCz)
+## 十六、[Teacat](https://www.teacat999.com/#/register?code=H3L7bmCz)
 
-&emsp;&emsp;100+高端节点稳定老牌大机场，IPEL企业级内网专线，月付最低不到13，超低倍率，三网优化直连。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天，春节活动优惠码：`0217` 享全场7.5折优惠**
+&emsp;&emsp;100+高端节点稳定老牌大机场，IPEL企业级内网专线，月付最低不到13，超低倍率，三网优化直连。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 
 👉[teacat官方网址入口](https://www.teacat999.com/#/register?code=H3L7bmCz)  
 
