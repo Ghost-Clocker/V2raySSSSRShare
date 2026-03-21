@@ -86,11 +86,11 @@
 👉[光速云官方网址入口](https://a01.gsyvipaff.cc/#/?code=Hx3EeWiq)
 
 
-## 十、[青云梯](https://ivt02.qytaff.cc/register?aff=h5RRgkgg)
+## 十、[Bocchi](https://haruka.bocchi.ooo/#/register?code=91WmiwF2)
 
 &emsp;&emsp;全IPLC专线高端机场，最大提供2.5GBPs速率，**不限制使用设备数**，高效客服响应。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国、阿根廷。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。
 
-👉[青云梯官方网址入口](https://ivt02.qytaff.cc/register?aff=h5RRgkgg)
+👉[Bocchi官方网址入口](https://haruka.bocchi.ooo/#/register?code=91WmiwF2)
 
 
 ## 十一、[litpupu（千速喵）](https://tmsreta.top/#/register?code=3h8G4ZaQ)
