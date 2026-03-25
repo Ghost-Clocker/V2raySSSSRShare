@@ -81,14 +81,14 @@
 
 ## 九、[光速云](https://a01.gsyvipaff.cc/#/?code=Hx3EeWiq)
 
-&emsp;&emsp;隧道中转专线机场，已扩展至 60+ 独立 IP，带宽 2Gbps+，高峰冗余 500M，海外团队运营，长期稳定，教程与客服万神。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国。原生 IP，支持解锁 Netflix / TVB / TikTok 等流媒体，支持 Windows / Mac / Linux / Android / iOS 多平台 Trojan、V2Ray 订阅
+&emsp;&emsp;隧道中转专线机场，已扩展至 60+ 独立 IP，带宽 2Gbps+，高峰冗余 500M，海外团队运营，长期稳定，教程与客服完整。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国。原生 IP，支持解锁 Netflix / TVB / TikTok 等流媒体，支持 Windows / Mac / Linux / Android / iOS 多平台 Trojan、V2Ray 订阅，**年付低至99**
 
 👉[光速云官方网址入口](https://a01.gsyvipaff.cc/#/?code=Hx3EeWiq)
 
 
 ## 十、[Bocchi](https://haruka.bocchi.ooo/#/register?code=91WmiwF2)
 
-&emsp;&emsp;全大陆中转，**性价比机场，不限制使用设备数**，协议支持 Shadowsocks。节点包括：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT、Claude 等 AI 工具。**月付低至8.8**，100G大流量，年付3折起。
+&emsp;&emsp;全大陆中转，**性价比机场，不限制使用设备数**，协议支持 Shadowsocks。节点包括：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT、Claude 等 AI 工具。**月付低至8.8，100G大流量，年付7折起**。
 
 👉[Bocchi官方网址入口](https://haruka.bocchi.ooo/#/register?code=91WmiwF2)
 
@@ -102,7 +102,7 @@
 
 ## 十二、[NiceDuck（好鸭）](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
-&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要20元，**低至每月6.66元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**春节优惠活动全场 75 折优惠码：`duck-75`**
+&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要26元，**低至每月8元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。
 
 👉[NiceDuck官方网址入口](https://vuser.niceduck.io/register?code=g1axG9Gs)
 
