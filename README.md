@@ -114,11 +114,11 @@
 👉[FASTLINK官方网址入口](https://a01.flaff9.cc/auth/register?code=dzyz)
 
 
-## 十四、[Gatern](https://s.gtoyes.com/aff.php?aff=2437)
+## 十四、[SpeedCat](https://webinv03.sc-aff.cc/auth/register?code=wEnH)
 
-&emsp;&emsp;高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，巴基斯坦，以色列，阿联酋，瑞典，波兰，丹麦，立陶宛，拉脱维亚，瑞士，罗马尼亚，新西兰，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁，有不限时流量包套餐。
+&emsp;&emsp;高端全专线 IPLC，无倍率套路，打造原生节点大机场，节点包括香港，台湾，日本，新加坡，美国，英国，马来西亚，阿根廷，土耳其等等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体。**注册即享 3 天免费体验**（优惠码：`free`）所有套餐季付95折，半年9折，年付8折。
 
-👉[Gatern官方网址入口](https://s.gtoyes.com/aff.php?aff=2437)
+👉[SpeedCat官方网址入口](https://webinv03.sc-aff.cc/auth/register?code=wEnH)
 
 
 ## 十五、[StarTrail（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
