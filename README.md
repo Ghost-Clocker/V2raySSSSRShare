@@ -79,11 +79,11 @@
 👉[M78星云官方网址入口](https://m78star.cloud/#/register?code=FBpboMz4)
 
 
-## 九、[光速云](https://vhost01.guangniantt.sbs/#/?code=Hx3EeWiq)
+## 九、[光速云](https://admin.guangniantt.sbs/#/?code=Hx3EeWiq)
 
 &emsp;&emsp;隧道中转专线机场，已扩展至 60+ 独立 IP，带宽 2Gbps+，高峰冗余 500M，海外团队运营，长期稳定，教程与客服完整。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国。原生 IP，支持解锁 Netflix / TVB / TikTok 等流媒体，支持 Windows / Mac / Linux / Android / iOS 多平台 Trojan、V2Ray 订阅，**年付低至99**
 
-👉[光速云官方网址入口](https://vhost01.guangniantt.sbs/#/?code=Hx3EeWiq)
+👉[光速云官方网址入口](https://admin.guangniantt.sbs/#/?code=Hx3EeWiq)
 
 
 ## 十、[Bocchi](https://nozomi.bocchicloud.com/#/register?code=91WmiwF2)
