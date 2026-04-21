@@ -95,7 +95,7 @@
 
 ## 十一、[litpupu（千速喵）](https://tmsreta.top/#/register?code=3h8G4ZaQ)
 
-&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。**特有0.6倍率节点**节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，拥有不限时512G大流量套餐 最新85折优惠码：`pupu8` 特供118元四周年限定一次性套餐，1314G永久流量**。
+&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。**特有0.6倍率节点**节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，拥有不限时200G大流量套餐**。
 
 👉[litpupu（千速喵）官方网址入口](https://tmsreta.top/#/register?code=3h8G4ZaQ)
 
@@ -114,16 +114,16 @@
 👉[FASTLINK官方网址入口](https://a01.flaff9.cc/auth/register?code=dzyz)
 
 
-## 十四、[SpeedCat](https://webinv03.sc-aff.cc/auth/register?code=wEnH)
+## 十四、[淘气兔](https://vip.xn--h5qy56dzhb.vip/#/register?code=fDdqmGm1)
 
-&emsp;&emsp;高端全专线 IPLC，无倍率套路，打造原生节点大机场，节点包括香港，台湾，日本，新加坡，美国，英国，马来西亚，阿根廷，土耳其等等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体。**注册即享 3 天免费体验**（优惠码：`free`）所有套餐季付95折，半年9折，年付8折。
+&emsp;&emsp;IEPL专线，全中转1倍率(15-30个设备链接)，节点包括香港，台湾，日本，新加坡，美国，英国，马来西亚，阿根廷，土耳其等等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速。支持ChatGPT, Netflix,Disney+等。**月最低7.8，100G大流量，更有不限时流量，全部白菜价。**
 
-👉[SpeedCat官方网址入口](https://webinv03.sc-aff.cc/auth/register?code=wEnH)
+👉[SpeedCat官方网址入口](https://vip.xn--h5qy56dzhb.vip/#/register?code=fDdqmGm1)
 
 
 ## 十五、[StarTrail（星轨）](https://plinkc.sbs/#/register?code=jbMDxER5)
 
-&emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.8，拥有198G大流量，独家提供海外用户回流套餐**
+&emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付最低16.8，拥有198G大流量，独家提供海外用户回流套餐**
 
 👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
 
