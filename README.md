@@ -116,7 +116,7 @@
 
 ## 十四、[淘气兔](https://vip.xn--h5qy56dzhb.vip/#/register?code=fDdqmGm1)
 
-&emsp;&emsp;IEPL专线，全中转1倍率(15-30个设备链接)，节点包括香港，台湾，日本，新加坡，美国，英国，马来西亚，阿根廷，土耳其等等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速。支持ChatGPT, Netflix,Disney+等。**月最低7.8，100G大流量，更有不限时流量，全部白菜价。**
+&emsp;&emsp;IEPL专线，全中转1倍率(15-30个设备链接)，节点包括香港，台湾，日本，新加坡，美国，英国，马来西亚，阿根廷，土耳其等等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速。支持ChatGPT, Netflix,Disney+等。**月最低7.8，拥有100G大流量，更有不限时流量低至22元100G。**
 
 👉[SpeedCat官方网址入口](https://vip.xn--h5qy56dzhb.vip/#/register?code=fDdqmGm1)
 
