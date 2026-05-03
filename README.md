@@ -86,11 +86,11 @@
 👉[光速云官方网址入口](https://admin.guangniantt.sbs/#/?code=Hx3EeWiq)
 
 
-## 十、[Bocchi](https://nozomi.bocchicloud.com/#/register?code=91WmiwF2)
+## 十、[智连云](https://zzzzz8.com/register?code=7wOIOjnh)
 
-&emsp;&emsp;全大陆中转，**性价比机场，不限制使用设备数**，协议支持 Shadowsocks。节点包括：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT、Claude 等 AI 工具。**月付低至8.8，月付低至8.8，100G大流量，年付7折起**。
+&emsp;&emsp;全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验。节点包括香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。**有“纯流量”套餐，低至 60 元**。满足各类用户需求。
 
-👉[Bocchi官方网址入口](https://nozomi.bocchicloud.com/#/register?code=91WmiwF2)
+👉[智连云官方网址入口](https://zzzzz8.com/register?code=7wOIOjnh)
 
 
 ## 十一、[litpupu（千速喵）](https://tmsreta.top/#/register?code=3h8G4ZaQ)
