@@ -66,10 +66,10 @@
 👉[肥猫云官方网址入口](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)  
 
 
-## 七、[魔戒](https://mojie.ws/#/register?code=kaPXUS5U)
+## 七、[魔戒](https://mojie.xn--yrs494l.com/register?aff=kaPXUS5U)
 &emsp;&emsp;专注于不限速，永久流量的机场，**所有套餐都不限时**，不限制人数，纯流量计费大机场，多人共享无压力，真正做到无限制上网。节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低至 1 元**。
 
-👉[魔戒官方网址入口](https://mojie.ws/#/register?code=kaPXUS5U)
+👉[魔戒官方网址入口](https://mojie.xn--yrs494l.com/register?aff=kaPXUS5U)
 
 
 ## 八、[M78星云](https://m78star.cloud/#/register?code=FBpboMz4)
