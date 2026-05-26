@@ -128,11 +128,11 @@
 👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
 
 
-## 十六、[Teacat](https://www.teacat999.com/#/register?code=H3L7bmCz)
+## 十六、[Teacat](https://5.invite.teacat.me/signup?code=H3L7bmCz)
 
 &emsp;&emsp;100+高端节点稳定老牌大机场，IPEL企业级内网专线，月付最低不到13，超低倍率，三网优化直连。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 
-👉[teacat官方网址入口](https://www.teacat999.com/#/register?code=H3L7bmCz)  
+👉[teacat官方网址入口](https://5.invite.teacat.me/signup?code=H3L7bmCz)  
 
 
 
