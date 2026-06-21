@@ -132,11 +132,11 @@
 👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=jbMDxER5)  
 
 
-## 十七、[Teacat](https://5.invite.teacat.me/signup?code=H3L7bmCz)
+## 十七、[Gatern](https://s.gtoyes.com/aff.php?aff=2437)
 
-&emsp;&emsp;100+高端节点稳定老牌大机场，IPEL企业级内网专线，月付最低不到13，超低倍率，三网优化直连。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
+&emsp;&emsp;高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，巴基斯坦，以色列，阿联酋，瑞典，波兰，丹麦，立陶宛，拉脱维亚，瑞士，罗马尼亚，新西兰，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁，有不限时流量包套餐。
 
-👉[teacat官方网址入口](https://5.invite.teacat.me/signup?code=H3L7bmCz)  
+👉[Gatern官方网址入口](https://s.gtoyes.com/aff.php?aff=2437)  
 
 
 
