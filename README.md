@@ -83,11 +83,11 @@
 👉[M78星云官方网址入口](https://m78star.cloud/#/register?code=FBpboMz4)
 
 
-## 十、[光速云](https://admin.guangniantt.sbs/#/?code=Hx3EeWiq)
+## 十、[Snaillink](https://snaillink.net/register?code=bN0ZBW4y)
 
-&emsp;&emsp;隧道中转专线机场，已扩展至 60+ 独立 IP，带宽 2Gbps+，高峰冗余 500M，海外团队运营，长期稳定，教程与客服完整。节点包括：香港、台湾、日本、新加坡、马来西亚、美国、韩国、越南、菲律宾、泰国、印度、德国、法国、英国。原生 IP，支持解锁 Netflix / TVB / TikTok 等流媒体，支持 Windows / Mac / Linux / Android / iOS 多平台 Trojan、V2Ray 订阅，**年付低至99**
+&emsp;&emsp;IEPL 国际专线线路，不限速 SS 机场，面向高频使用与稳定需求场景，体验更稳、延迟更低。节点包括：香港，澳门，台湾，日本，新加坡，美国，韩国，马来西亚，泰国，土耳其，印度尼西亚，英国，法国，澳大利亚，加拿大，波兰，瑞士，印度等。解锁Netflix、Disney+、Hulu、HBO、、AmazonPrime等主流流媒体。 解锁 ChatGPT。**新用户注册即可免费试用 2小时 5GB流量，新用户 8 折优惠码：`off20fornew`**。
 
-👉[光速云官方网址入口](https://admin.guangniantt.sbs/#/?code=Hx3EeWiq)
+👉[Snaillink官方网址入口](https://snaillink.net/register?code=bN0ZBW4y)
 
 
 ## 十一、[智连云](https://zzzzz8.com/register?code=7wOIOjnh)
