@@ -58,7 +58,7 @@
 
 
 ## 六、[SKYLUMO](https://skylumo.com/#/register?code=ZY0sGpvb)
-&emsp;&emsp;超高性价比机场，节点地区包括香港，台湾，日本，新加坡，美国，韩国，英国、荷兰、意大利、加拿大、瑞典、芬兰、波兰、奥地利、澳大利亚等。原生IP、解锁流媒体Netflix、Disney+、Youtube等主流媒体，解锁ChatGPT。**基础套餐年付低至白菜价9.9元，每月自动重置**，相当划算。
+&emsp;&emsp;超高性价比机场，节点地区包括香港，台湾，日本，新加坡，美国，韩国，英国、荷兰、意大利、加拿大、瑞典、芬兰、波兰、奥地利、澳大利亚等。原生IP、解锁流媒体Netflix、Disney+、Youtube等主流媒体，解锁ChatGPT。**基础套餐年付低至白菜价9.9元，每月自动重置，相当划算。**
 
 👉[SKYLUMO官方网址入口](https://skylumo.com/#/register?code=ZY0sGpvb)
 
