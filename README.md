@@ -52,7 +52,7 @@
 
 
 ## 五、[Eueu](https://eueuwith.top/#/register?code=15WCnh7Y)
-&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。节点地区包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时纯流量一次性套餐**，7x12H在线客服服务支持。**中秋国庆优惠券：`eueu888`**
+&emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。节点地区包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供**不限时纯流量一次性套餐**，7x12H在线客服服务支持。**中秋国庆9折优惠券：`eueu888`**
 
 👉[Eueu官方网址入口](https://eueuwith.top/#/register?code=15WCnh7Y)
 
