@@ -57,10 +57,9 @@
 👉[Eueu官方网址入口](https://eupromax.cc/#/register?code=15WCnh7Y)
 
 
-## 六、[SKYLUMO](https://skylumo.com/#/register?code=ZY0sGpvb)
-&emsp;&emsp;超高性价比机场，节点地区包括香港，台湾，日本，新加坡，美国，韩国，英国、荷兰、意大利、加拿大、瑞典、芬兰、波兰、奥地利、澳大利亚等。原生IP、解锁流媒体Netflix、Disney+、Youtube等主流媒体，解锁ChatGPT。**基础套餐年付低至白菜价9.9元，每月50G流量自动重置，相当划算。**
-
-👉[SKYLUMO官方网址入口](https://skylumo.com/#/register?code=ZY0sGpvb)
+## 六、[Snaillink](https://snaillink.com/register?code=bN0ZBW4y)
+&emsp;&emsp;IEPL 国际专线线路，不限速 SS 机场，面向高频使用与稳定需求场景，体验更稳、延迟更低。节点包括：香港，澳门，台湾，日本，新加坡，美国，韩国，马来西亚，泰国，土耳其，印度尼西亚，英国，法国，澳大利亚，加拿大，波兰，瑞士，印度等。解锁Netflix、Disney+、Hulu、HBO、、AmazonPrime等主流流媒体。 解锁 ChatGPT。**新用户注册即可免费试用 2小时 5GB流量，新用户 8 折优惠码：`off20fornew`**。
+👉[Snaillink官方网址入口](https://snaillink.com/register?code=bN0ZBW4y)
 
 
 ## 七、[FatcatCloud（肥猫云）](https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn)
