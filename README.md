@@ -103,11 +103,11 @@
 👉[liltpupu（千速喵）官方网址入口](https://liltpupuu.top/#/register?code=3h8G4ZaQ)
 
 
-## 十三、[NiceDuck（好鸭）](https://x.haoya.io/register?code=g1axG9Gs)
+## 十三、[八戒](https://bajie.la/register?aff=xXAvNdMs)
 
-&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可季付只要26元，**低至每月8元**。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**全场75折优惠码：`duck-75`**
+&emsp;&emsp;不限速、主打纯流量计费，无到期限制，多人共享无压力，真正做到无限制上网，也支持月付。节点包括：香港，日本，台湾，美国，新加坡，加拿大，德国，英国，土耳其，澳大利亚，朝鲜，意大利，葡萄牙，俄罗斯，哈萨克斯坦，乌克兰，以色列，阿根廷，尼日利亚等。解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。**价格低至 1 元**。
 
-👉[NiceDuck官方网址入口](https://x.haoya.io/register?code=g1axG9Gs)
+👉[八戒官方网址入口](https://bajie.la/register?aff=xXAvNdMs)
 
 
 ## 十四、[FASTLINK](https://a01.flaff9.cc/auth/register?code=dzyz)
