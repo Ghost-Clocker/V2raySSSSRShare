@@ -145,4 +145,10 @@
 👉[NiceDuck官方网址入口](https://x.haoya.io/register?code=g1axG9Gs)
 
 
+## 十九、[Just My Socks](https://justmysocks.net/members/cart.php)
 
+BandwagonHost 官方 proxy subscription（代理订阅）。定位偏稳定备用：可按官方流程更新订阅参数；近年节点以 VLESS Reality 为主，后台提供 Mihomo / Clash.Meta 订阅，常见客户端可直接导入。价格高于多数低价服务，节点数量相对少，不适合只看性价比的场景。
+
+套餐与导入步骤中文对照（无推广参数）：https://justmysockss3.net/
+
+👉[Just My Socks 官网购物车](https://justmysocks.net/members/cart.php)
